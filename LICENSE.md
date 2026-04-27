@@ -1,4 +1,4 @@
-
+math for brainrots Scripts premium offers the most advanced math for brainrots Script, with auto-heal and auto-upgrade. Perfect for dominating any
 
 
 
